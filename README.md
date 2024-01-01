@@ -12,3 +12,5 @@ CES 2024
 https://www.ces.tech/
 
 https://www.engadget.com/ces-2024-what-we-expect-in-las-vegas-this-year-140040145.html
+
+https://www.engadget.com/ces-2024-what-we-expect-in-las-vegas-this-year-140040145.html
